@@ -1,2 +1,2 @@
 # Hebja
-Just fun on mausi home
+Just fun at mausi home
